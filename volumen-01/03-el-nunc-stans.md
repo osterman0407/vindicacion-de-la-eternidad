@@ -1,4 +1,4 @@
-# Agustín y la invención del presente eterno
+# El Nunc Stans de Agustín
 
 Si Parménides nos legó una eternidad de piedra —estática, lógica, impasible—, San Agustín de Hipona (354-430 d.C.) nos entrega una eternidad de luz: viva, personal y redentora. En el libro XI de sus Confesiones, esa obra fundacional donde la autobiografía se transfigura en teología filosófica, el obispo de Hipona no solo se pregunta qué es el tiempo, sino que confiesa el vértigo existencial que siente al intentar asirlo. Para Agustín, el tiempo no es una propiedad objetiva del cosmos, sino una herida en la creación, una consecuencia del pecado original que fragmenta el alma; y la eternidad, el Nunc Stans (el "ahora permanente"), es la medicina divina que sana esa dispersión, ofreciendo al espíritu inquieto un descanso en la unidad.
 
