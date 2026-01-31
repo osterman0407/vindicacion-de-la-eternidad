@@ -1,4 +1,4 @@
-# Sub specie aeternitatis de Spinoza
+# Sub specie aeternitatis
 
 Para Baruch Spinoza —el pulidor de lentes de Ámsterdam cuyo trabajo material consistía en corregir las aberraciones de la visión— la temporalidad es una ilusión óptica fundamental, una distorsión nacida de la perspectiva finita y fragmentaria de la criatura. En este capítulo, nos adentramos en la propuesta más radical y sistemática del racionalismo occidental: la afirmación de que podemos, incluso desde nuestra condición de seres sometidos a la duración y la muerte, acceder a una perspectiva que trasciende radicalmente el flujo sucesivo para contemplar la realidad sub specie aeternitatis —"bajo el aspecto de la eternidad". Esta no es una fuga mística, sino un ejercicio de rigor geométrico aplicado al alma, un reajuste del foco intelectual que nos permite ver el mundo no como una colección de cosas que pasan, sino como un sistema de verdades necesarias que simplemente son.
 
