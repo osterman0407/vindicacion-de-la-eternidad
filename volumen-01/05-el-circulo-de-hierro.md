@@ -1,4 +1,4 @@
-# El círculo de hierro de Nietzsche
+# El círculo de hierro
 
 En agosto de 1881, a seis mil pies sobre el nivel del mar y de la envidia humana, Friedrich Nietzsche, el filósofo errante cuya salud se deshacía como pergamino antiguo, caminaba por las orillas silenciosas del lago de Silvaplana, en la Engadina suiza. El aire alpino, cargado de una transparencia casi metafísica, parecía disolver las categorías ordinarias del pensamiento. Allí, junto a una imponente roca piramidal que se alzaba como un monumento natural a lo intemporal, fue asaltado—no visitado, sino violentamente posesionado—por una idea que transformaría radicalmente la concepción occidental de la eternidad. Ya no sería ésta una promesa de descanso ultraterreno, sino una condena de hierro, un destino cósmico ineludible: el Eterno Retorno de lo Mismo (Die ewige Wiederkunft des Gleichen).
 
