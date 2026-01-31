@@ -1,4 +1,4 @@
-# La inmovilidad del Uno en Parménides de Elea
+# La inmovilidad del Uno 
 
 Para comprender la eternidad, primero debemos aprender a negar el movimiento. En el siglo V a.C., mientras la mayoría de los hombres se perdían en la contemplación de lo que nace y muere, un ciudadano de Elea decidió que los sentidos eran, en el mejor de los casos, poetas mentirosos. Parménides no solo inventó la ontología; construyó la primera fortaleza lógica contra el tiempo, erigiendo con palabras el muro más sólido frente al devenir. Su pensamiento representa el primer gran esfuerzo sistemático por vindicar la eternidad frente a la aparente tiranía de la temporalidad.
 
