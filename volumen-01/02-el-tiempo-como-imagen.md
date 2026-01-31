@@ -1,4 +1,4 @@
-# El Tiempo como imagen en Platón
+# El Tiempo como imagen 
 
 Si la eternidad es un océano estático y sin orillas —un plenum de presencia absoluta donde nada falta y nada sobra—, el tiempo es la ondulación que recorre su superficie cuando algo decide lanzar una piedra. Esa perturbación, ese movimiento que parece romper la quietud, es en realidad la única forma en que lo mutable puede participar de lo inmutable. Para Platón, esa "piedra" fue la voluntad del Demiurgo, el artesano divino que no creó el mundo de la nada (como el Dios abrahámico), sino que lo ordenó a partir del caos preexistente, imponiendo forma sobre la materia informe. El tiempo nace así no como una ilusión, sino como una realidad derivada, una estrategia ontológica para que lo que deviene pueda reflejar, aunque sea débilmente, lo que siempre Es.
 
